@@ -1,0 +1,1 @@
+My iphone was stolen couple of days ago and the feeling sucks. It is about the money and the private photos, AND ABOVE ALL THIS, it is about 'I am a technologist and full stack developer, it can't happen to me' feeling. So yes, I refuse to give in. If I can't return mine, at least I can prevent the next one to be deliberately taken. Who is up for the challenge?
